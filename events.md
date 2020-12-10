@@ -6,7 +6,7 @@ layout: page
 
 **Our meeting location is currently at:**
 **The Church Lincolnton**
-**1959 Startown Rd**
+**1591 Startown Rd**
 **Lincolnton, NC 28092**
 
 We meet the first 3 Thursdays of the month at 7:00 PM, however you're welcome to come at 6:30 PM for greets and ragchews. Please bring any items that you want to trade / sell / contribute or have questions about as we have an excellent group of folks that are quite knowledgeable.
